@@ -18,4 +18,5 @@ Upton our client Robin's request, we adjusted the current web app to include all
 
 
 Do contact our company via our linkedin if you want such beautiful website for yourself
-https://www.linkedin.com/in/utsav-chaudhary-b394152b/
+
+click on my [linkedin](https://www.linkedin.com/in/utsav-chaudhary-b394152b/)
